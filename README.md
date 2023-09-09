@@ -1,3 +1,3 @@
 # ProjectDjango
 
-fumarrrr
+mi amigo es gei
